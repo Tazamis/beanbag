@@ -1,0 +1,1 @@
+Fivem beanbag shotgun script
